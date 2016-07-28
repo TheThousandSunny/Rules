@@ -6,4 +6,5 @@
 4. Use common sense 
 5. We have Rule Number Five To Look Professional
 
+Enjoy your stay
 ![Img](http://i1146.photobucket.com/albums/o532/BronzedMe/GIFs/ASDFGHJKL/tumblr_m1e4zhsA7Z1qh51lto1_500.gif.)
